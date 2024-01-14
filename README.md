@@ -1,4 +1,5 @@
-![image](https://github.com/Dingrajak/Dingrajak/assets/156158251/1f28af7b-f79c-4ceb-b318-5819ef589fa8)
+![image](https://github.com/Dingrajak/Dingrajak/assets/156158251/ba87ff01-b1c6-42b7-8a26-3543f0b09fb3)
+
 ### Hi EveryOne!!!
 
 
