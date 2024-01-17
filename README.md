@@ -1,5 +1,3 @@
-![image](https://github.com/Dingrajak/Dingrajak/assets/156158251/ba87ff01-b1c6-42b7-8a26-3543f0b09fb3)
-
 ### Hi EveryOne!!!
 
 
